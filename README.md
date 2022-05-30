@@ -10,4 +10,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... Via my LinkeIn - (https://www.linkedin.com/in/harvey-sandhu-27a75b22b/)
 - 😄 Pronouns: ... He/him
 - ⚡ Fun fact: ... Music nerd 🤓
--->
